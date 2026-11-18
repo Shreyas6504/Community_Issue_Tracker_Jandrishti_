@@ -154,7 +154,7 @@
 
 **Shreyas**
 - GitHub: [@Shreyas6504](https://github.com/Shreyas6504)
-- LinkedIn: [Your Profile Link](https://linkedin.com)
+- LinkedIn: [Contact via Email](mailto:jshreyasshetty@gmail.com)
 
 ---
 
